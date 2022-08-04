@@ -1,3 +1,7 @@
+![functionThaisa](https://user-images.githubusercontent.com/89106662/182775364-fc55bd19-719f-49e6-8555-683f3049bf9d.jpg)
+
+<br>
+
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?color=e765ac&center=false&lines=Oii!+Bem-vindo+ao+meu+github!+%E2%99%A5)](https://git.io/typing-svg)
 
 [![instagram](https://img.shields.io/badge/Instagram-9f6ac9.svg?style=for-the-badge&logo=Instagram&logoColor=white)](https://www.instagram.com/thaisasicco) [![linkedin](https://img.shields.io/badge/LinkedIn-9f6ac9.svg?style=for-the-badge&logo=LinkedIn&logoColor=white)](https://www.linkedin.com/in/thaisasicco/) 
@@ -16,7 +20,7 @@
 
 <br>
 
-![functionThaisa](https://user-images.githubusercontent.com/89106662/182775364-fc55bd19-719f-49e6-8555-683f3049bf9d.jpg)
+
 
 <br>
 
